@@ -47,16 +47,16 @@ I successfully completed the assessment with a score of 100%, reflecting a stron
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
-> In the Interview Skills formative assessment, I was tested on key interview preparation strategies, including researching potential employers, answering questions using structured methods, and managing common interview challenges.
+In the Interview Skills formative assessment, I was tested on key interview preparation strategies, including researching potential employers, answering questions using structured methods, and managing common interview challenges.
 
 **Task:**  
-> My objective was to demonstrate my knowledge of how to prepare for and perform effectively in a professional interview, showcasing both confidence and communication competence.
+My objective was to demonstrate my knowledge of how to prepare for and perform effectively in a professional interview, showcasing both confidence and communication competence.
 
 **Action:**  
-> I studied the principles of successful interviews, including the CAR (Context, Action, Result) method for answering questions, and practiced tailoring responses to highlight my strengths. I also revised the importance of researching a company and preparing thoughtful answers for common questions such as “Tell me about yourself” and “What is your greatest weakness?”
+I studied the principles of successful interviews, including the CAR (Context, Action, Result) method for answering questions, and practiced tailoring responses to highlight my strengths. I also revised the importance of researching a company and preparing thoughtful answers for common questions such as “Tell me about yourself” and “What is your greatest weakness?”
 
 **Result:**  
-> I achieved a 100% score, reflecting a strong grasp of interview preparation strategies. Through this task, I learned how structured responses like the CAR and STAR methods help convey clear, confident, and professional answers. This experience has increased my readiness for future job interviews and improved my self-presentation skills.
+I achieved a 100% score, reflecting a strong grasp of interview preparation strategies. Through this task, I learned how structured responses like the CAR and STAR methods help convey clear, confident, and professional answers. This experience has increased my readiness for future job interviews and improved my self-presentation skills.
 
 ---
 
@@ -84,20 +84,20 @@ I successfully completed the assessment with a score of 100%, reflecting a stron
 
 ### 📎 Evidence
 *<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 46 57" src="https://github.com/user-attachments/assets/58828dd7-053b-41f1-bb0c-7b1814108ed5" />*
-
+>"Screenshot: My Professional Networking formative assessment result on MyClassroom (submitted on 20 March 2025). This evidence demonstrates my understanding of professional networking principles, including the purpose of networking, common mistakes to avoid, and strategies for building meaningful professional relationships."
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
-> Where and how did you network?  
+I completed the Professional Networking activity as part of my Project Presentation 3 to enhance my knowledge of networking and its relevance in a professional environment.
 
 **Task:**  
-> What did you aim to achieve through networking?  
+My aim was to understand how to build and maintain valuable professional connections that could support my career development and personal growth.
 
 **Action:**  
-> What actions did you take to connect and engage professionally?  
+I engaged with the online assessment by applying theoretical concepts to real-world networking practices, such as attending events, communicating effectively, and following up with contacts to sustain relationships.
 
 **Result:**  
-> What results or insights did you gain from these connections?  
+I achieved a 100/100 score, demonstrating my strong grasp of networking principles. This activity helped me gain insights into the importance of intentional networking and how professional connections can lead to collaboration, mentorship, and future career opportunities.
 
 ---
 
@@ -105,28 +105,25 @@ I successfully completed the assessment with a score of 100%, reflecting a stron
 
 ### 📎 Evidence
 *<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 47 55" src="https://github.com/user-attachments/assets/4f8481c3-9f53-4e22-a490-9c479c06edf8" />*
-
+>"Screenshot: My Workplace Etiquette formative assessment result on MyClassroom (submitted on 22 March 2025). This evidence demonstrates my understanding of appropriate workplace behavior, confidentiality, and professional communication in different office scenarios."
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
-> Describe a workplace or project situation that required professional behavior.  
+During my academic and internship experiences, I often found myself working in collaborative environments where maintaining professionalism and respect was crucial for teamwork and communication.
 
 **Task:**  
-> What responsibility or challenge did you face?  
+My responsibility was to ensure that I demonstrated professional conduct, particularly in handling sensitive information, managing time effectively, and communicating appropriately with colleagues and supervisors.
 
 **Action:**  
-> What actions or behavior did you display to handle it?  
+I practiced clear and respectful communication, maintained confidentiality, and followed workplace protocols. I also managed my time efficiently by being punctual for meetings and handling feedback constructively.
 
 **Result:**  
-> What did you learn about professionalism in the workplace?  
+I achieved a 100/100 score for this assessment, reinforcing my understanding of professional etiquette. I learned that professionalism is not just about rules—it’s about building trust, accountability, and a positive reputation in any workplace setting.
 
 ---
 
 ## 🪞 Reflection Summary
-Provide a short summary of your **overall growth** across all modules.
-
-> Example:  
-> “This portfolio reflects my journey from being uncertain about workplace behavior to confidently engaging in interviews and networking professionally. Through consistent reflection using the STAR method, I have developed strong communication, interpersonal, and presentation skills.”
+This portfolio reflects my professional growth in communication, networking, and workplace conduct. Through each module, I gained confidence in presenting myself professionally, applying the STAR method to reflect on real experiences. I’ve developed stronger interpersonal, problem-solving, and communication skills, preparing me to succeed in any professional environment.
 
 ---
 
