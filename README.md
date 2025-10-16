@@ -1,9 +1,9 @@
 # 🎓 PRP370-1-2S Digital Portfolio
 **Qualification:** Diploma in Information and Communication Technology  
 **Subject:** Project Presentation 3 (PRP370S)  
-**Student Name:** [Your Full Name]  
-**Student Number:** [Your Student Number]  
-**Date:** [Insert Date]  
+**Student Name:** Patience Phakathi  
+**Student Number:** 222228431 
+**Date:** 18/10/2025
 **Lecturer:** P. Inderlal  
 
 ---
