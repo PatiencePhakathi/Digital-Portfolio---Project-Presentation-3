@@ -21,7 +21,7 @@
 ## 1️⃣ Business Communication
 
 ### 📎 Evidence
-*(Attach or describe your artefact — e.g., presentation slides, emails, or report example.)*  
+*<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 39 45" src="https://github.com/user-attachments/assets/f8a95a0d-9653-4a66-a76b-b6e82ed618e5" />*  
 > Example: “Attached is my formal business proposal presentation used during our group pitch session.”
 
 ### 💭 Reflection — STAR Technique
