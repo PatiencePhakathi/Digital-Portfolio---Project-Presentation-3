@@ -32,12 +32,10 @@ In the Business Communication formative assessment, I was required to complete a
 My goal was to demonstrate competence in applying communication principles by answering all questions correctly within the allocated time frame.  
 
 **Action:**  
-Detail what actions you took to handle the situation.  
-> Example: “I researched effective presentation structures, rehearsed with my group, and used visuals to support key points.”  
+I reviewed my lecture notes and previous learning materials on verbal and non-verbal communication, business email etiquette, and presentation skills. I then applied this knowledge when completing the assessment, ensuring that I read each question carefully before selecting an answer.
 
 **Result:**  
-Share the outcome or learning gained.  
-> Example: “The panel commended our presentation clarity, and I improved my confidence in formal communication.”  
+I successfully completed the assessment with a score of 100%, reflecting a strong grasp of business communication fundamentals. This activity improved my ability to differentiate between formal and informal communication contexts and enhanced my confidence in professional written and verbal correspondence. 
 
 ---
 
