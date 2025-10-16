@@ -46,7 +46,8 @@ Share the outcome or learning gained.
 ## 2️⃣ Interview Skills
 
 ### 📎 Evidence
-*(Include screenshots, notes, or recordings related to your interview preparation.)*
+*<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 45 58" src="https://github.com/user-attachments/assets/88b6a139-2903-4e7d-9a28-bdd075ecd9d3" />*
+
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
@@ -66,7 +67,7 @@ Share the outcome or learning gained.
 ## 3️⃣ Mock Interview
 
 ### 📎 Evidence
-*(Provide screenshots, videos, or summaries of your mock interview experience.)*
+*{video link here}*
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
@@ -86,7 +87,8 @@ Share the outcome or learning gained.
 ## 4️⃣ Professional Networking
 
 ### 📎 Evidence
-*(Include LinkedIn profile screenshots, networking event summaries, or mentorship activities.)*
+*<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 46 57" src="https://github.com/user-attachments/assets/58828dd7-053b-41f1-bb0c-7b1814108ed5" />*
+
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
@@ -106,7 +108,8 @@ Share the outcome or learning gained.
 ## 5️⃣ Workplace Etiquette
 
 ### 📎 Evidence
-*(Provide artefacts like reports, observations, or examples demonstrating professional conduct.)*
+*<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 47 55" src="https://github.com/user-attachments/assets/4f8481c3-9f53-4e22-a490-9c479c06edf8" />*
+
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
