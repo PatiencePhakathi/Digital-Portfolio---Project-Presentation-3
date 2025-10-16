@@ -22,16 +22,14 @@
 
 ### 📎 Evidence
 *<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 39 45" src="https://github.com/user-attachments/assets/f8a95a0d-9653-4a66-a76b-b6e82ed618e5" />*  
-> Example: “Attached is my formal business proposal presentation used during our group pitch session.”
+> “Screenshot: My Business Communication formative assessment result on MyClassroom (submitted on 04 March 2025). This evidence demonstrates my understanding of professional communication principles and my ability to apply them in a learning environment.”
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
-Describe the context or challenge you faced.  
-> Example: “During a group project, we were required to communicate a project proposal to a panel of lecturers.”  
+In the Business Communication formative assessment, I was required to complete an online quiz that tested my understanding of professional workplace communication, including tone, etiquette, and appropriate use of formal language.”  
 
 **Task:**  
-Explain your specific role or responsibility.  
-> Example: “My task was to create and deliver the presentation while ensuring clarity and professionalism.”  
+My goal was to demonstrate competence in applying communication principles by answering all questions correctly within the allocated time frame.  
 
 **Action:**  
 Detail what actions you took to handle the situation.  
