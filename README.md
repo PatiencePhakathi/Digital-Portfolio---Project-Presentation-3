@@ -43,20 +43,20 @@ I successfully completed the assessment with a score of 100%, reflecting a stron
 
 ### 📎 Evidence
 *<img width="1440" height="900" alt="Screenshot 2025-10-16 at 18 45 58" src="https://github.com/user-attachments/assets/88b6a139-2903-4e7d-9a28-bdd075ecd9d3" />*
-
+>"Screenshot: My Interview Skills formative assessment result on MyClassroom (submitted on 04 March 2025). This evidence demonstrates my understanding of effective interview preparation and response strategies using professional communication techniques."
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
-> Describe the interview scenario or task.  
+> In the Interview Skills formative assessment, I was tested on key interview preparation strategies, including researching potential employers, answering questions using structured methods, and managing common interview challenges.
 
 **Task:**  
-> What was expected from you?  
+> My objective was to demonstrate my knowledge of how to prepare for and perform effectively in a professional interview, showcasing both confidence and communication competence.
 
 **Action:**  
-> How did you prepare or perform during the interview?  
+> I studied the principles of successful interviews, including the CAR (Context, Action, Result) method for answering questions, and practiced tailoring responses to highlight my strengths. I also revised the importance of researching a company and preparing thoughtful answers for common questions such as “Tell me about yourself” and “What is your greatest weakness?”
 
 **Result:**  
-> What was the outcome or feedback, and what did you learn?  
+> I achieved a 100% score, reflecting a strong grasp of interview preparation strategies. Through this task, I learned how structured responses like the CAR and STAR methods help convey clear, confident, and professional answers. This experience has increased my readiness for future job interviews and improved my self-presentation skills.
 
 ---
 
