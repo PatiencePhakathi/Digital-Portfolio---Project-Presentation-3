@@ -63,9 +63,8 @@ I achieved a 100% score, reflecting a strong grasp of interview preparation stra
 ## 3️⃣ Mock Interview
 
 ### 📎 Evidence
-🎬 [Watch my Mock Interview on OneDrive](https://1drv.ms/v/c/e0d5c85707334c1d/Ecvk9ts0k_RFqxAj1w-039UBkES8iiV4BMtG0Zk5ruek0g?e=Nk7HaS)
 
->"Screenshot: My Interview Skills formative assessment result on MyClassroom (submitted on 04 March 2025). his artefact demonstrates my ability to apply the STAR method, maintain professional body language, and respond confidently to common interview questions in a simulated job interview setting."
+>https://github.com/PatiencePhakathi/Digital-Portfolio---Project-Presentation-3/blob/main/WhatsApp%20Video%202025-10-17%20at%2021.35.48.mp4
 
 ### 💭 Reflection — STAR Technique
 **Situation:**  
