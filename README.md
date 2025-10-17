@@ -63,7 +63,7 @@ I achieved a 100% score, reflecting a strong grasp of interview preparation stra
 ## 3️⃣ Mock Interview
 
 ### 📎 Evidence
-[🎥 Click here to view my full portfolio on GitHub]([https://github.com/yourusername/yourportfolio](https://1drv.ms/v/c/e0d5c85707334c1d/Ecvk9ts0k_RFqxAj1w-039UBkES8iiV4BMtG0Zk5ruek0g?e=Nk7HaS))
+[🎥 Click here to view my full portfolio on GitHub]((https://1drv.ms/v/c/e0d5c85707334c1d/Ecvk9ts0k_RFqxAj1w-039UBkES8iiV4BMtG0Zk5ruek0g?e=Nk7HaS))
 
 >"Screenshot: My Interview Skills formative assessment result on MyClassroom (submitted on 04 March 2025). This evidence demonstrates my understanding of effective interview preparation and response strategies using professional communication techniques."
 
