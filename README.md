@@ -1,4 +1,4 @@
-# 🎓 PRP370-1-2S Digital Portfolio
+# 🎓 PRP370-1-2S Final Digital Portfolio
 **Qualification:** Diploma in Information and Communication Technology  
 **Subject:** Project Presentation 3 (PRP370S)  
 **Student Name:** Patience Phakathi  
