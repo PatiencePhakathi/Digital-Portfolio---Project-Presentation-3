@@ -62,21 +62,73 @@ I achieved a 100% score, reflecting a strong grasp of interview preparation stra
 
 ## 3️⃣ Mock Interview
 
-### 📎 Evidence
-*{video link here}*
+### 🖼️ Caption
+> **Screenshot / Video Evidence:** Mock Interview video showcasing my professional communication and interview performance skills as part of the PRP370S module.
 
-### 💭 Reflection — STAR Technique
+### 📎 Evidence
+[🎥 Click here to watch my Mock Interview on OneDrive](## 3️⃣ Mock Interview
+
+### 🖼️ Caption
+> **Screenshot / Video Evidence:** Mock Interview video showcasing my professional communication and interview performance skills as part of the PRP370S module.
+
+### 📎 Evidence
+[🎥 Click here to watch my Mock Interview on OneDrive](## 3️⃣ Mock Interview
+
+### 🖼️ Caption
+> **Screenshot / Video Evidence:** Mock Interview video showcasing my professional communication and interview performance skills as part of the PRP370S module.
+
+### 📎 Evidence
+[🎥 Click here to watch my Mock Interview on OneDrive]([https://1drv.ms/v/c/e0d5c85707334c1d/Ecvk9ts0k_RFqxAj1w-039UBkES8iiV4BMtG0Zk5ruek0g?e=1Bbffx])
+
+---
+
+### 💭 Reflection — STAR Technique (Mock Interview)
+
 **Situation:**  
-> Describe the setup or context of the mock interview.  
+I participated in a mock interview session designed to simulate a real job interview environment, focusing on communication, professionalism, and confidence.
 
 **Task:**  
-> Explain what your goal or role was.  
+My objective was to apply the STAR method effectively when responding to common interview questions and to demonstrate strong non-verbal communication.
 
 **Action:**  
-> Discuss the steps you took to perform effectively.  
+I prepared by reviewing common interview questions, setting up a professional background, and practicing structured responses. During the mock interview, I focused on tone, posture, and articulation to communicate clearly and confidently.
 
 **Result:**  
-> Summarize feedback and how you’ll improve in real interviews.  
+The session improved my ability to express myself professionally under pressure. I gained valuable feedback on pacing and clarity, which will help me perform even better in real interviews.
+)
+
+---
+
+### 💭 Reflection — STAR Technique (Mock Interview)
+
+**Situation:**  
+I participated in a mock interview session designed to simulate a real job interview environment, focusing on communication, professionalism, and confidence.
+
+**Task:**  
+My objective was to apply the STAR method effectively when responding to common interview questions and to demonstrate strong non-verbal communication.
+
+**Action:**  
+I prepared by reviewing common interview questions, setting up a professional background, and practicing structured responses. During the mock interview, I focused on tone, posture, and articulation to communicate clearly and confidently.
+
+**Result:**  
+The session improved my ability to express myself professionally under pressure. I gained valuable feedback on pacing and clarity, which will help me perform even better in real interviews.
+)
+
+---
+
+### 💭 Reflection — STAR Technique (Mock Interview)
+
+**Situation:**  
+I participated in a mock interview session designed to simulate a real job interview environment, focusing on communication, professionalism, and confidence.
+
+**Task:**  
+My objective was to apply the STAR method effectively when responding to common interview questions and to demonstrate strong non-verbal communication.
+
+**Action:**  
+I prepared by reviewing common interview questions, setting up a professional background, and practicing structured responses. During the mock interview, I focused on tone, posture, and articulation to communicate clearly and confidently.
+
+**Result:**  
+The session improved my ability to express myself professionally under pressure. I gained valuable feedback on pacing and clarity, which will help me perform even better in real interviews.
 
 ---
 
